@@ -1,0 +1,1 @@
+This simulation video showcases an excavator mechanism equipped with six blades designed for the tree transplantation process, where the blades surround the tree’s root system and scoop it from the ground.
